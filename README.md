@@ -15,6 +15,6 @@ I have games that I know slightly. you also have to ask my username!
 
 I don't mind whatever you call me or my gender. I keep my gender hidden.<3
 
-U^ェ^U: +~> That's it for now! thank you for reaching all this way. feel free to int with me if you're comfortable <~+
+U^ェ^U: >< That's it for now! thank you for reaching all this way. feel free to int with me if you're comfortable ><
 
-☆♡~Stay safe, my brothers and sisters~♡☆
+☆♡>Stay safe, my brothers and sisters<♡☆
